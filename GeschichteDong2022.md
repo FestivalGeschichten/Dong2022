@@ -34,7 +34,7 @@ Doch das hielt sie nicht davon ab, ihren eher stupide und solide ingezuchten Soh
 
 Doch Alfred war das nicht genug. Viktoria fasst sich in den Schritt, alle machen mit, ich fühle mich Disco ! Uh ! Übrigens, Victoria schreibt man mit "c", ihr *Gänseblümchen*. Doch plötzlich fiel ihm ein, da kann doch auch noch irgendwas ne Helga sein.
 
-Doch Früstück muss noch vorher sein. Zum Frühstück gibt's Wein und Bier. Und ein Konterbier. Frösche aufpusten bis sie platzen macht der ganzen Zeltgemeinde sehr viel Spaß. Und es war Sommer. Sommer. Victoria sah nach oben und sah die Vögel in der aufgehenden Sonne kreisen, ihre Entscheidung war getroffen.
+Doch Frühstück muss noch vorher sein. Zum Frühstück gibt's Wein und Bier. Und ein Konterbier. Frösche aufpusten bis sie platzen macht der ganzen Zeltgemeinde sehr viel Spaß. Und es war Sommer. Sommer. Victoria sah nach oben und sah die Vögel in der aufgehenden Sonne kreisen, ihre Entscheidung war getroffen.
 
 Dafür, dass schon Mittag war, hatte sie unverschämt wenig an, aber dennoch konnte sie keiner aufhalten. Elle saute pieds join dans l'eau pour mélanger son corps flamboyant au courrant fraie de la rivière. Nachdem sie im Wasser war, saß sie in der Sonne bis ihre Zehen so verbrannt waren, dass sie knusprig waren.
 
@@ -96,7 +96,7 @@ Und die Freude über diese Erkenntnis war groß, ja, gar sehr groß und war ein 
 
 Denn wenige Meter weiter gab es ein Camp mit scharfen Nüssen, wirklich scharfen Nüssen!!! Und sie sahen so köstlich aus, da konnte man einfach nicht widerstehen. Ihr könnt euch bestimmt vorstellen, was danach auf den Dixies los war. Da sind mir dann meine Nüsschen aus der Hose geplumpst. Als ich meine Nüsschen dann endlich wieder eingesammelt hatte, nahm ich mir das Bier vorm Dixi. Nachdem ich es geext hatte, realisierte ich, dass es kein Bier war... erstmal 'n Spucki und weiter geht's!
 
-Zurück im Camp traf ich Alfred, der mich mit den charmanten Worten "Hey, ich habe einen gekrümmten Wurm in der Hose, möchtest du ihn sehen?" begrüßte, und mir seine Magic-Karte entgegenhielt, die wahrscheinlich mittlerweile durch sämtliche Hosen der Festivalbesicher gewandert war.
+Zurück im Camp traf ich Alfred, der mich mit den charmanten Worten "Hey, ich habe einen gekrümmten Wurm in der Hose, möchtest du ihn sehen?" begrüßte, und mir seine Magic-Karte entgegenhielt, die wahrscheinlich mittlerweile durch sämtliche Hosen der Festivalbesucher gewandert war.
 
 Das schöne Mädchen schüttelte sein Haar, denn es gab Reis. Baby! "Sehr gerne möchte ich deinen gekrümmten Wurm sehen." Mein lila Einhorn steckt im Loch eines grauen Hippopotamus. Fußnote, als ich aufwachte, dachte ich daran *Gänseblümchen* zu müssen, war aber nur ein Fehlalarm.
 
@@ -121,7 +121,7 @@ Er kraulte seinen graumelierten Wanst ... durchaus wohlförmig möchte man meine
 
 She got very wet and screamed: Die Feuerwehr macht Schaumparty! Da kommst du nicht mehr raus. Es ist aus mit der Maus, denn sie geht jetzt nach Haus zu ihrem Bruder Klaus.
 
-Die Matsche klebt die an den Füssen. Während ich hier schreibe spürst du meine Buße. Leck mich am Aal und als Knorkator alles nur Kommunisten. Ich stehe hier mit meinem liebsten Bruder. Ben ist sein Name, knie vor ihm nieder. Fällt dann sein Same, macht ihr's wieder. (Katzen Smiley)[.png]
+Die Matsche klebt die an den Füssen. Während ich hier schreibe spürst du meine Buße. Leck mich am Aal und als Knorkator alles nur Kommunisten. Ich stehe hier mit meinem liebsten Bruder. Ben ist sein Name, knie vor ihm nieder. Fällt dann sein Same, macht ihr's wieder. ![Dong Katze](DongCat.jpg)
 
 Er ist ein super Cheerleader, mit seinen Ponpons gewinnt er alle Herzen der Sieger. Die Sonne knallt, aber sie friert trotzdem. Hauptsache knallen. Er nimmt alles. Doch sei froh, es hätte auch Biene in deine Nudel stechen können. Und der Pilzmann zauberte der Bienenfrau einen Blumenstrauß.
 
